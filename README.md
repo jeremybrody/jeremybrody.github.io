@@ -1,1 +1,0 @@
-# jeremybrody.github.io
